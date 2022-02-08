@@ -1,1 +1,0 @@
-# tabachkova_qa
